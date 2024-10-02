@@ -1,6 +1,7 @@
 ## Hi there 
 I’m currently studying in China University of Mining and Technology
 I really love listening songs,especially rap and rock
+I can speak a little English(yeah,maybe i donnot know what capability i have.)
 
 
 <!--
